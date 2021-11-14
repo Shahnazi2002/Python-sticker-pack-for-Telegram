@@ -3,4 +3,4 @@ Sticker pack direct link:
 https://t.me/addstickers/pythoncodes
 
 Sticker pack in channel:
-https://t.me/Stickerabad/5445
+https://t.me/stickerabad/5445
