@@ -11,4 +11,4 @@ Sticker pack direct link:
 https://t.me/addstickers/kotlincodes
 
 Sticker pack preview in channel:
-https://t.me/stickerabad/X
+https://t.me/stickerabad/5489
